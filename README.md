@@ -1,1 +1,1 @@
-# Lego
+Hanya Kegabutan Semata
